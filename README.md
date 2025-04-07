@@ -8,6 +8,6 @@
 
 - 📫 How to reach me: LinkedIn www.linkedin.com/in/h0pejohnson or email me at htillyj@gmail.com
 
-- ⚡ Fun fact: I’ve played tennis my whole life!
+- ⚡ Fun fact: I love to play tennis!
 
 
